@@ -1,0 +1,12 @@
+{
+  "name": "jfk-com",
+  "version": "0.0.1",
+  "description": "Content of jfk.com",
+  "scripts": {
+    "test": "exit 0",
+    "build": "madoko content/index.md --odir=site/"
+  },
+  "devDependencies": {
+    "madoko": "^1.0.1"
+  }
+}
