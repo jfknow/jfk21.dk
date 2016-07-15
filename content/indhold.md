@@ -1,4 +1,5 @@
 Title       : Jorden Frihed Kundskab 
+
 Title Note  : Et nyt dansk parti med fokus på to ting
 
 [TITLE]
