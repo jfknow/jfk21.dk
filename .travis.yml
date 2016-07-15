@@ -10,6 +10,7 @@ deploy:
   provider: surge
   on:
     branch: master
+  skip_cleanup: true
   domain: jfk21.dk
   project: site/
   
