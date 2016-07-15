@@ -4,11 +4,12 @@ node_js:
 
 before_deploy:
   - npm run build
+  - ls
   
 deploy:
   provider: surge
   on:
     branch: master
   domain: jfk21.dk
-  project: ./site/
+  project: site/
   
