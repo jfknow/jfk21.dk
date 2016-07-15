@@ -1,7 +1,7 @@
 {
-  "name": "jfk-com",
+  "name": "jfk-dk",
   "version": "0.0.1",
-  "description": "Content of jfk.com",
+  "description": "Content of jfk.dk",
   "scripts": {
     "test": "exit 0",
     "build": "madoko content/index.md --odir=site/"
