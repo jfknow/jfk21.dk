@@ -1,0 +1,11 @@
+language: node_js
+node_js:
+  - "4"
+  
+deploy:
+  provider: surge
+  on:
+    branch: master
+  domain: jfk21.dk
+  project: ./site/
+  
