@@ -26,7 +26,7 @@ Magten søges såvidt muligt decentraliseret. Øget fleksibillitet i arbejdstide
 
 Menneskets frihed er bedre varetaget af det folkevalgte europa-parlament end af den udpegede Kommission. Danmark skal ikke indgå såkaldte ”Frihandelsaftaler”, der begrænser den Danske Stats ret til at lovgive og regulere livet i Danmark. Der skal være en langt strammere monopollovgivning, som sikrer den frie konkurrence får lettere spil.
 
-Vi mener desuden at 
+**Vi mener desuden at**
 
 - Danmark skal ikke kunne deltage i krige uden en forudgående folkeafstemning. Der bør i stedet arbejdes på fred og at genopbygge landene, der har været igennem disse forfærdelige krige. Ret skal være ret, derfor skal whistleblowers beskyttes, de kæmper for vores alle sammens frihed.
 
