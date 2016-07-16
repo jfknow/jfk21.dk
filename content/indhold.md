@@ -30,7 +30,7 @@ Menneskets frihed er bedre varetaget af det folkevalgte europa-parlament end af 
 
 - Danmark skal ikke kunne deltage i krige uden en forudgående folkeafstemning. Der bør i stedet arbejdes på fred og at genopbygge landene, der har været igennem disse forfærdelige krige. Ret skal være ret, derfor skal whistleblowers beskyttes, de kæmper for vores alle sammens frihed.
 
-- Alle lån fra IMF og World Bank bør være rentefrie, ellers er der ikke meget tale om hjælp, men mere tale om forretning. U – lande bør såvidt muligt eftergives sin u – lands gæld, mange af dem har allerede betalt både to og tre gange så meget i rente, som de har fået i lån gennem tiden.
+- Alle lån fra IMF og World Bank bør være rentefrie, ellers er der ikke meget tale om hjælp, men mere tale om forretning. U–lande bør såvidt muligt eftergives sin u–lands gæld, mange af dem har allerede betalt både to og tre gange så meget i rente, som de har fået i lån gennem tiden.
 
 - Naturmedicin bør igen ligestilles med pharmaceutika. Således skal universiteterne udover patenterbar syntetisk medicin også uddanne i naturlig upatenterbar medicin.
 
