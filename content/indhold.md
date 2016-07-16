@@ -42,7 +42,7 @@ En folkeskolereform der tager udgangspunkt i det enkelte barns trivsel. Man lær
 
 Aktive lyttere og seere genindføres, og der skal være lettere adgang til at få dementeret beviseligt falske informationer der bliver spredt i medierne. 
 
-Der skal fokusres mere på både bæredygtig vedværende energi samt studeres i mulgihederne for fri energi.
+Der skal fokuseres mere på både bæredygtig vedværende energi samt studeres i mulgihederne for fri energi.
 ----
 
 Skriv til info@jfk21.com for at yderligere information.
