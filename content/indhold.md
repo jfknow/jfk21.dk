@@ -48,4 +48,8 @@ Menneskets frihed er bedre varetaget af det folkevalgte europa-parlament end af 
 
 Skriv til info@jfk21.com for at yderligere information.
 
-Bank: Arbejdernes Landsbank Konto: 5301 0263080 IBAN: DK4553010000263080 SWIFT: ALBADKKK Bank: Mercur Konto: 8401 1298811 SWIPP: 30303740
+Bank: Arbejdernes Landsbank Konto: 5301 0263080 | IBAN: DK4553010000263080 | SWIFT: ALBADKKK 
+
+Bank: Mercur Konto: 8401 1298811 
+
+SWIPP: 30303740
