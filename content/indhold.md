@@ -8,7 +8,7 @@ Title Note : Et nyt dansk parti
 
 En bæredygtig økonomi for hele befolkningen med retten til et værdigt liv i tryghed, et sted at bo og nok økonomi til at man kan klare sig. Det er vigtigt at alle mennesker nyder gavn af den teknologiske udvikling og ikke kun en stadig mindre global elite. Samtidig også retten til at kunne opbygge sin karriere eller virksomhed uden unødvendig bureaukrati og beskatning. Fremfor alt skal almindelige mennesker i sine mindre virksomheder kunne konkurrere på så lige vilkår som muligt med store internationale firmaer, som i stigende grad benytter sig af skattetænkning. En væsentlig del af menneskets frihed er et mere overskueligt regelsæt og således søges administrationen nedbragt såvidt muligt.
 
-En Folkeejet Nationalbank udsteder gældsfrie og rentefrie penge direkte ind på den enkelte borgers konto i den Folkeejdede Nationalbank i form af Borger Dividende, fordi alle danskere får een aktie hver i den Folkeejede Nationalbank. Til de der ønsker at vide i praksis, hvordan det søges gjort henviser vi til ”Monetary Reform on Iceland”. https://www.forsaetisraduneyti.is/media/Skyrslur/monetary-reform.pdf
+En Folkeejet Nationalbank udsteder gældsfrie og rentefrie penge direkte ind på den enkelte borgers konto i den Folkeejdede Nationalbank i form af Borger Dividende, fordi alle danskere får een aktie hver i den Folkeejede Nationalbank. Til de der ønsker at vide i praksis, hvordan det søges gjort henviser vi til ”[Monetary Reform on Iceland](https://www.forsaetisraduneyti.is/media/Skyrslur/monetary-reform.pdf)”. 
 
 Illusionen om at bankerne agerer uafhængige mellemmænd og assisterer almindelige mennesker med finansiering af nye små virksomheder er totalt bristet. Bankerne låner stort set kun ud imod fuld sikkerhed, og 85% af al udlån går således i dag til finansiel spekulation, primært i ejendomme.
 
@@ -42,11 +42,11 @@ Menneskets frihed er bedre varetaget af det folkevalgte europa-parlament end af 
 
 - Aktive lyttere og seere genindføres, og der skal være lettere adgang til at få dementeret beviseligt falske informationer der bliver spredt i medierne. 
 
-- Der skal fokuseres mere på både bæredygtig vedvarende energi samt studeres i mulighederne for fri energi.
+- Der skal fokuseres mere på både bæredygtig vedvarende energi samt forskes i mulighederne for fri energi.
 
 ----
 
-Skriv til info@jfk21.com for at modtage yderligere information.
+**Skriv til info@jfk21.com for at modtage yderligere information.**
 
 _Bank: Arbejdernes Landsbank Konto: 5301 0263080 | IBAN: DK4553010000263080 | SWIFT: ALBADKKK_ 
 
