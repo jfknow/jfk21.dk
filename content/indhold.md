@@ -44,9 +44,11 @@ Menneskets frihed er bedre varetaget af det folkevalgte europa-parlament end af 
 
 - Der skal fokuseres mere på både bæredygtig vedvarende energi samt forskes i mulighederne for fri energi.
 
+[Tilmeld dig nyhedsbrevet](http://eepurl.com/b9-jSf) for at modtage det fulde partiprogram
+
 ----
 
-**Skriv til info@jfk21.com for at modtage yderligere information.**
+_Skriv til info@jfk21.com for at modtage yderligere information._
 
 _Bank: Arbejdernes Landsbank Konto: 5301 0263080 | IBAN: DK4553010000263080 | SWIFT: ALBADKKK_ 
 
