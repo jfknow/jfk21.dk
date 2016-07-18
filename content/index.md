@@ -4,4 +4,4 @@ BibTeX		: False
 
 [INCLUDE="indhold.md"]
 
-[INCLUDE="footer.js.html"]
+[INCLUDE="lib/footer.js.html"]
