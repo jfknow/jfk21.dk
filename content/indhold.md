@@ -6,9 +6,9 @@ Title Note : Et nyt dansk parti
 
 # En bæredygtig økonomi
 
-En bæredygtig økonomi for hele befolkningen med retten til et værdigt liv i tryghed, et sted at bo og nok økonomi til at man kan klare sig. Det er vigtigt at alle mennesker nyder gavn af den teknologiske udvikling og ikke kun en stadig mindre global elite. Samtidig også retten til at kunne opbygge sin karriere eller virksomhed uden unødvendig bureaukrati og beskatning. Fremfor alt skal almindelige mennesker i sine mindre virksomheder kunne konkurrere på så lige vilkår som muligt med store internationale firmaer, som i stigende grad benytter sig af skattetænkning. En væsentlig del af menneskets frihed er et mere overskueligt regelsæt og således søges administrationen nedbragt såvidt muligt.
+sikrer hele befolkningen muligheden og retten til et værdigt liv i tryghed, et sted at bo og nok økonomi til at man kan klare sig. Det er vigtigt at alle mennesker nyder gavn af den teknologiske udvikling og ikke kun en stadig mindre global elite. Samtidig også retten til at kunne opbygge sin karriere eller virksomhed uden unødvendig bureaukrati og beskatning. Fremfor alt skal almindelige mennesker i sine mindre virksomheder kunne konkurrere på så lige vilkår som muligt med store internationale firmaer, som i stigende grad benytter sig af skattetænkning. En væsentlig del af menneskets frihed er et mere overskueligt regelsæt og således søges administrationen nedbragt såvidt muligt. Besparelsen heraf skal specielt komme de lavest lønnede til gode.
 
-En Folkeejet Nationalbank udsteder gældsfrie og rentefrie penge direkte ind på den enkelte borgers konto i den Folkeejdede Nationalbank i form af Borger Dividende, fordi alle danskere får een aktie hver i den Folkeejede Nationalbank. Til de der ønsker at vide i praksis, hvordan det søges gjort henviser vi til ”[Monetary Reform on Iceland](https://www.forsaetisraduneyti.is/media/Skyrslur/monetary-reform.pdf)”. 
+En Folkeejet Nationalbank udsteder gældsfrie og rentefrie penge direkte ind på den enkelte borgers konto i den Folkeejdede Nationalbank i form af Borger Dividende, fordi alle danskere får een aktie hver i den Folkeejede Nationalbank. Til de der ønsker at vide i praksis, hvordan det søges gjort henviser vi til ”[Monetary Reform on Iceland](https://www.forsaetisraduneyti.is/media/Skyrslur/monetary-reform.pdf)”. Vi vil arbejde på at alle lande i EU nationaliserer sine privatejede og privat kontrollerede centralbanker. 
 
 Illusionen om at bankerne agerer uafhængige mellemmænd og assisterer almindelige mennesker med finansiering af nye små virksomheder er totalt bristet. Bankerne låner stort set kun ud imod fuld sikkerhed, og 85% af al udlån går således i dag til finansiel spekulation, primært i ejendomme.
 
@@ -18,17 +18,19 @@ Det er en menneskerettighed at have et sted at bo. Et rigt land som Danmark bør
 
 Virksomhederne skal også betale Grønne Afgifter, det er trods alt dem der forurener mest.
 
+Vi  ønsker at flytte beskatningen fra indkomst til i stedet at beskatte forbrug, omsætning og resourcer. 
+
 # Menneskets frihed
 
-Den anden ting er menneskets frihed. Frihed fra et stigende antal regler og forordninger, som ikke engang de myndigheder, der er ansat til at varetage dem, mestrer fuldt ud. Frihed fra unødvendig beskatning, mens virksomheder, specielt multinationale virksomheder, ofte går fri. Frihed til at starte egen virksomhed på lige vilkår med multinationale virksomheder. 
+Den anden ting er menneskets frihed. Frihed fra et stigende antal regler og forordninger, som ikke engang de myndigheder, der er ansat til at varetage dem, mestrer fuldt ud. Borgerens retssikkerhed skal øges og sikres upartiske afgørelser i tvister med offentlige institutioner og private virksomheder. Frihed fra unødvendig beskatning, mens virksomheder, specielt multinationale virksomheder, ofte går fri. Frihed til at starte egen virksomhed på lige vilkår med multinationale virksomheder. 
 
 Magten søges såvidt muligt decentraliseret. Øget fleksibillitet i arbejdstiderne i form af flekstid, deltid, 7/7-ordninger. Borgerombudsmanden skal i stigende grad medvirke til at sikre den enkelte borgers rettigheder, og at alle sager bliver vurderet af en instans af uvildige. Nemmere adgang til folkeafstemninger og mere direkte demokrati.
 
 Menneskets frihed er bedre varetaget af det folkevalgte europa-parlament end af den udpegede Kommission. Danmark skal ikke indgå såkaldte ”Frihandelsaftaler”, der begrænser den Danske Stats ret til at lovgive og regulere livet i Danmark. Der skal være en langt strammere monopollovgivning, som sikrer den frie konkurrence får lettere spil.
 
-**Vi mener desuden at**
+Danmark skal ikke kunne deltage i krige uden en forudgående folkeafstemning. Herunder inkluderes konventionel krig, handelskrig, finansiel krig, geo-ingeneering, miljøkrig, informationskrig, krig ved brug af terror handlinger og krig ved organiseret masse-immigration. Der bør i stedet arbejdes på fred og at genopbygge landene, der har været igennem disse forfærdelige krige. Det vil være den bedste løsning til spørgsmålet om flygtninge. Ret skal være ret, derfor skal whistleblowers beskyttes, de kæmper for vores alle sammens frihed.
 
-- Danmark skal ikke kunne deltage i krige uden en forudgående folkeafstemning. Der bør i stedet arbejdes på fred og at genopbygge landene, der har været igennem disse forfærdelige krige. Ret skal være ret, derfor skal whistleblowers beskyttes, de kæmper for vores alle sammens frihed.
+**Vi mener desuden at**
 
 - Alle lån fra IMF og World Bank bør være rentefrie, ellers er der ikke meget tale om hjælp, men mere tale om forretning. U–lande bør såvidt muligt eftergives sin u–lands gæld, mange af dem har allerede betalt både to og tre gange så meget i rente, som de har fået i lån gennem tiden.
 
@@ -44,7 +46,7 @@ Menneskets frihed er bedre varetaget af det folkevalgte europa-parlament end af 
 
 - Der skal fokuseres mere på både bæredygtig vedvarende energi samt forskes i mulighederne for fri energi.
 
-[Tilmeld dig nyhedsbrevet](http://eepurl.com/b9-jSf) for at modtage det fulde partiprogram
+[Tilmeld dig nyhedsbrevet](http://eepurl.com/b9-jSf) og for at afgive vælgererklæring for Jorden Frihed Kundskab.
 
 ----
 
