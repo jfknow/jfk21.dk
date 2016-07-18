@@ -61,6 +61,8 @@ Og hvis du stadig ønsker at afgive vælgererklæring efter en uges betænknings
 
 _Skriv til info@jfk21.com for at modtage yderligere information._
 
+_Medlemskab. DKK 240 per år._
+
 _Bank: Arbejdernes Landsbank Konto: 5301 0263080 | IBAN: DK4553010000263080 | SWIFT: ALBADKKK_ 
 
 _Bank: Mercur Konto: 8401 1298811_ 
