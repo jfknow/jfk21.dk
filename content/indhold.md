@@ -50,23 +50,24 @@ Retten til fuld aktindsigt iflg offentlighedsloven skal genetableres. Det gælde
 
 Der skal sættes en stopper for og rettes op på den udhuling af uddannelserne og dermed deres kvalitet, der har fundet sted over årtier. Desuden skal uddannelsesstederne give plads til ny viden også indenfor kontroversielle emner, sålænge disse er baseret på facts og grundig kildekritik. Højere uddannelser skal igen være steder, hvor ægte kritisk tænkning kan finde sted i stedet for blot reproduktion efter færdige skabeloner. Forudsætningen for, at dette kan finde sted, skal starte allerede i den grundlæggende skoling. En folkeskolereform der tager udgangspunkt i det enkelte barns trivsel. Man lærer bedst i en skole man holder af at være i. Der skal tages hensyn til det enkelte barns indlæringssystem. Der skal undervises i Trivium metoden og at kunne tænke kritisk og selvstændigt. Og meget gerne "ude af boksen". Det er, hvad vi får brug for i fremtiden.
 
+----
 
-[Tilmeld dig nyhedsbrevet](http://eepurl.com/b9-jSf) og giv samtidig en - støtteerklæring - til Jorden Frihed Kundskab. 
+Det koster 240 kr. per år at blive medlem af Jorden Frihed Kundskab. [Udfyld tilmeldingsblanketten](http://kortlink.dk/mqw2) for at blive medlem.
 
-Du vil efter godt en uge modtage en mail fra - noreply@vælgererklæring.dk -. 
+[Tilmeld dig nyhedsbrevet](http://eepurl.com/b9-jSf) og giv samtidig en støtteerklæring til Jorden Frihed Kundskab. 
 
-Og hvis du efter en uges betænkningstid, ønsker at afgive vælgererklæring, så åbner du mailen fra - noreply@vælgererklæring.dk - logger ind via NEMID og følger anvisningerne, således ændres støtteerklæringen til en vælgererklæring. 
+En støtteerklæring angiver at du muligvis er interesseret i at støtte partiet. Efter godt en uge modtage du en mail fra `noreply@vælgererklæring.dk` og hvis du føler at partiet bør kunne opstille til næste valg, så kan du følge anvisningerne i mailen, logger ind via NEMID og give os en vælgererklæring. 
 
 Det hele tager ca. et minut. 
 
 ----
 
-_Skriv til info@jfk21.com for at modtage yderligere information._
+> Skriv til info@jfk21.com for at modtage yderligere information.
 
-_Medlemskab. DKK 240 per år._
+> Medlemskab. DKK 240 per år.
 
-_Bank: Arbejdernes Landsbank Konto: 5301 0263080 | IBAN: DK4553010000263080 | SWIFT: ALBADKKK_ 
+> Bank: Arbejdernes Landsbank Konto: 5301 0263080 | IBAN: DK4553010000263080 | SWIFT: ALBADKKK
 
-_Bank: Mercur Konto: 8401 1298811_ 
+> Bank: Mercur Konto: 8401 1298811
 
-_SWIPP: 30303740_
+> SWIPP: 30303740
