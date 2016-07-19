@@ -37,7 +37,7 @@ html {
 	line-height: 1.26;
 }
 
-body {
+html>body.madoko {
 	width: inherit;
 }
 
@@ -76,6 +76,17 @@ body {
 	}
 }
 
+
+@media print {
+	html {
+		border: 0;
+		padding: 0;
+	}
+	
+	#border-top, #border-bottom{
+		display:none;
+	}
+}
 
 
 
