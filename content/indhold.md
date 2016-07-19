@@ -51,11 +51,13 @@ Retten til fuld aktindsigt iflg offentlighedsloven skal genetableres. Det gælde
 Der skal sættes en stopper for og rettes op på den udhuling af uddannelserne og dermed deres kvalitet, der har fundet sted over årtier. Desuden skal uddannelsesstederne give plads til ny viden også indenfor kontroversielle emner, sålænge disse er baseret på facts og grundig kildekritik. Højere uddannelser skal igen være steder, hvor ægte kritisk tænkning kan finde sted i stedet for blot reproduktion efter færdige skabeloner. Forudsætningen for, at dette kan finde sted, skal starte allerede i den grundlæggende skoling. En folkeskolereform der tager udgangspunkt i det enkelte barns trivsel. Man lærer bedst i en skole man holder af at være i. Der skal tages hensyn til det enkelte barns indlæringssystem. Der skal undervises i Trivium metoden og at kunne tænke kritisk og selvstændigt. Og meget gerne "ude af boksen". Det er, hvad vi får brug for i fremtiden.
 
 
-[Tilmeld dig nyhedsbrevet](http://eepurl.com/b9-jSf) og for at afgive vælgererklæring for Jorden Frihed Kundskab. 
+[Tilmeld dig nyhedsbrevet](http://eepurl.com/b9-jSf) og giv samtidig en - støtteerklæring - til Jorden Frihed Kundskab. 
 
 Du vil efter godt en uge modtage en mail fra - noreply@vælgererklæring.dk -. 
 
-Og hvis du stadig ønsker at afgive vælgererklæring efter en uges betænkningstid, så åbner du mailen fra - noreply@vælgererklæring.dk - logger ind via NEMID og følger anvisningerne. Det hele bør tage under et minut. 
+Og hvis du efter en uges betænkningstid, ønsker at afgive vælgererklæring, så åbner du mailen fra - noreply@vælgererklæring.dk - logger ind via NEMID og følger anvisningerne, således ændres støtteerklæringen til en vælgererklæring. 
+
+Det hele tager ca. et minut. 
 
 ----
 
