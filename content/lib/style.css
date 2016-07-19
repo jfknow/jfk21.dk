@@ -37,6 +37,10 @@ html {
 	line-height: 1.26;
 }
 
+body {
+	width: inherit;
+}
+
 #border-top, #border-bottom {
 	position: fixed;
 	left: 0px;
