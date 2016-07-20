@@ -24,7 +24,7 @@ Vi  ønsker at flytte beskatningen fra indkomst til i stedet at beskatte forbrug
 
 # Menneskets frihed
 
-Den anden ting er menneskets frihed. Frihed fra et stigende antal regler og forordninger, som ikke engang de myndigheder, der er ansat til at varetage dem, mestrer fuldt ud. Borgerens retssikkerhed skal øges og sikres upartiske afgørelser i tvister med offentlige institutioner og private virksomheder. Frihed fra unødvendig beskatning er en menneskeret. Specielt multinationale virksomheder går ofte fri fra at bidrage til samfundet. Frihed til at starte egen virksomhed på lige vilkår med multinationale virksomheder. 
+Det næste tema er menneskets frihed. Frihed fra et stigende antal regler og forordninger, som ikke engang de myndigheder, der er ansat til at varetage dem, mestrer fuldt ud. Borgerens retssikkerhed skal øges og sikres upartiske afgørelser i tvister med offentlige institutioner og private virksomheder. Frihed fra unødvendig beskatning er en menneskeret. Specielt multinationale virksomheder går ofte fri fra at bidrage til samfundet. Frihed til at starte egen virksomhed på lige vilkår med multinationale virksomheder. 
 
 Magten søges såvidt muligt decentraliseret. Øget fleksibillitet i arbejdstiderne i form af flekstid, deltid, 7/7-ordninger. Borgerombudsmanden skal i stigende grad medvirke til at sikre den enkelte borgers rettigheder, og sikre at alle sager bliver vurderet af en instans af uvildige. Nemmere adgang til folkeafstemninger og mere direkte demokrati.
 
