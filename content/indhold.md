@@ -18,7 +18,7 @@ Det er en menneskerettighed at have et sted at bo. Et rigt land som Danmark bør
 
 Virksomhederne skal også betale Grønne Afgifter. Det er trods alt dem, der forurener mest. Og virksomheder der forurener, skal fremover løbende hensætte passende beløb til rensningen af miljøet.
 
-Landbruget bør omstilles til at producere varer, der er 100% statskontrolleret økologisk uden kræftfremkaldende GMO og pestisider. Der er langt større dækningsbidrag ved denne produktion, og således benyttes et mindre areal af Danmark til produktionen af den samme indtægt. 
+Landbruget bør omstilles til at producere varer, der er 100% statskontrolleret økologisk uden kræftfremkaldende GMO og pesticider. Der er langt større dækningsbidrag ved denne produktion, og således benyttes et mindre areal af Danmark til produktionen af den samme indtægt. 
 
 Vi  ønsker at flytte beskatningen fra indkomst til i stedet at beskatte forbrug, omsætning og resourcer. 
 
@@ -48,7 +48,7 @@ Medier skal kunne gøres ansvarlige for misinformation. I det omfang, de ukritis
 
 Retten til fuld aktindsigt iflg offentlighedsloven skal genetableres. Det gælder også de beslutninger, der bliver truffet af det danske Folketing. Det skal ikke være muligt for politikere at unddrage sig demokratiet ved at hemmeligholde beslutningernes forudsætninger.
 
-Der skal sættes en stopper for og rettes op på den udhuling af uddannelserne og dermed deres kvalitet, der har fundet sted over årtier. Desuden skal uddannelsesstederne give plads til ny viden også indenfor kontroversielle emner, sålænge disse er baseret på facts og grundig kildekritik. Højere uddannelser skal igen være steder, hvor ægte kritisk tænkning kan finde sted i stedet for blot reproduktion efter færdige skabeloner. Forudsætningen for, at dette kan finde sted, skal starte allerede i den grundlæggende skoling. En folkeskolereform der tager udgangspunkt i det enkelte barns trivsel. Man lærer bedst i en skole man holder af at være i. Der skal tages hensyn til det enkelte barns indlæringssystem. Der skal undervises i Trivium metoden og at kunne tænke kritisk og selvstændigt. Og meget gerne "ude af boksen". Det er, hvad vi får brug for i fremtiden.
+Der skal sættes en stopper for og rettes op på den udhuling af uddannelserne og dermed deres kvalitet, der har fundet sted over årtier. Desuden skal uddannelsesstederne give plads til ny viden også indenfor kontroversielle emner, sålænge disse er baseret på facts og grundig kildekritik. Højere uddannelser skal igen være steder, hvor ægte kritisk tænkning kan finde sted i stedet for blot reproduktion efter færdige skabeloner. Forudsætningen for, at dette kan finde sted, skal starte allerede i den grundlæggende skoling. En folkeskolereform der tager udgangspunkt i det enkelte barns trivsel. Man lærer bedst i en skole man holder af at være i. Der skal tages hensyn til det enkelte barns indlæringssystem. Der skal undervises metodisk, således at de studerende i stigende grad lærer at kunne tænke kritisk og selvstændigt. Og meget gerne "ude af boksen". Det er, hvad vi får brug for i fremtiden.
 
 ----
 
