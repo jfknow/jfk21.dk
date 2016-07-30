@@ -71,3 +71,9 @@ Det hele tager ca. et minut.
 > Bank: Mercur Konto: 8401 1298811
 
 > SWIPP: 30303740
+
+
+~ sidelogo
+![JFK logo](img/JFK21-logo-v1.1.png) 
+{ #thelogo }
+~
