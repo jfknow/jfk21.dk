@@ -22,7 +22,7 @@ Det er primært virksomhederne, der skal betale grønne afgifter, da det er dem,
 
 Landbruget skal inden for 5 år omlægges til at producere varer, der er 100% statskontrolleret økologisk uden GMO og pesticider. Der er langt større dækningsbidrag ved denne produktion, og således benyttes et mindre areal af Danmark til produktionen af den samme indtægt. Vi har stor ekspertise på produktion af fødevarer i Danmark. Nu er det på tide at gå næste skridt i retning af en mere divers madproduktion. Der skaber nye økosystemer i stedet for at ødelægge dem med monokultur.
 
-Vi  ønsker at flytte beskatningen fra indkomst til i stedet at beskatte forbrug, omsætning og resourcer. 
+Vi  ønsker at flytte beskatningen fra indkomst til i stedet at beskatte forbrug, omsætning og resourcer. Dette gør vi for at øge fokus på de dele af samfundet, der skaber den reele værditilvækst til gavn for alle borgeres velfærd. Ligeledes bliver enhver form for skattetænkning meget vanskeligere, og mennesker og virksomhederne kan koncentrere sig om effektiviteten af produktionen i stedet. Og ved at beskatte resourcer sikres, at der ikke bliver brugt mere end højst nødvendigt.
 
 # Menneskets frihed
 
@@ -40,7 +40,7 @@ Ret skal være ret, derfor skal whistleblowers beskyttes. De kæmper for vores a
 
 # Mennesker Kundskab
 
-Forskning bør ikke dikteres af store korporationer og deres kommercielle interesser. Forskere bør ikke bruge halvdelen af deres arbejdstid på at tigge om fondsmidler fra bl.a. disse korporationer. Det skal heller ikke være muligt for disse via lobbyisme at forhindre forskning i visse emner. Viden om menneskelivet udspringer af naturen, og så længe mennesker ikke lever i harmoni med naturen, bekæmper den naturen. Vi ønsker at naturvidenskab og videnskab genfinder sin harmonu med naturen, så vi sikrer en bæredygtig fremtid for alle på jorden. Eksempelvis skal forskning og udvikling indenfor helt nye teknologier af ikke-forurenende energiproduktion kraftigt forøges.
+Forskning bør ikke dikteres af store korporationer og deres kommercielle interesser. Forskere bør ikke bruge halvdelen af deres arbejdstid på at tigge om fondsmidler fra bl.a. disse korporationer. Det skal heller ikke være muligt for disse via lobbyisme at forhindre forskning i visse emner. Viden om menneskelivet udspringer af naturen, og så længe mennesker ikke lever i harmoni med naturen, bekæmper den naturen. Vi ønsker at naturvidenskab og videnskab genfinder sin harmoni med naturen, så vi sikrer en bæredygtig fremtid for alle på jorden. Eksempelvis skal forskning og udvikling indenfor helt nye teknologier af ikke-forurenende energiproduktion kraftigt forøges.
 
 Videnskabelig svindel og manipulering af videnskab for politiske motiver skal i langt højere grad kunne straffes. Det gælder både virksomheder, politikere og videnskabsfolk, der har medvirket til den slags.
 
