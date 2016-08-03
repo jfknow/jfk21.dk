@@ -8,7 +8,7 @@ Title Note : Et nyt dansk parti
 
 sikres FØRST og FREMMEST af: 
 
-En Folkeejet Nationalbank, der udsteder gældsfrie og rentefrie penge direkte ind på den enkelte borgers konto i den Folkeejdede Nationalbank i form af Borger Dividende. Alle danskere får een aktie hver i den Folkeejede Nationalbank. Til de der ønsker at vide i praksis, hvordan det søges gjort, henviser vi til ”[Monetary Reform on Iceland](https://www.forsaetisraduneyti.is/media/Skyrslur/monetary-reform.pdf)”. Vi vil arbejde på, at alle lande i EU nationaliserer deres privatejede og privatkontrollerede centralbanker. 
+En Folkeejet Nationalbank, der udsteder gældsfrie og rentefrie penge direkte ind på den enkelte borgers konto i den Folkeejdede Nationalbank i form af Borger Dividende. Alle borgere får een aktie hver i den Folkeejede Nationalbank. Til de der ønsker at vide i praksis, hvordan det søges gjort, henviser vi til ”[Monetary Reform on Iceland](https://www.forsaetisraduneyti.is/media/Skyrslur/monetary-reform.pdf)”. Vi vil arbejde på, at alle lande i EU nationaliserer deres privatejede og privatkontrollerede centralbanker. 
 
 Bankerne låner stort set kun ud imod fuld sikkerhed, og 85% af al udlån går således i dag til finansiel spekulation, primært i ejendomme.
 
