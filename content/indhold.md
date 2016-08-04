@@ -64,7 +64,9 @@ Det hele tager ca. et minut.
 
 ----
 
-> Skriv til info@jfk21.com for at modtage yderligere information.
+> Skriv til info@jfk21.com med spørgsmål eller ideer.
+
+> For generel info send en mail til      info-om@jfk21.dk      og modtag svar med links og info. 
 
 > Medlemskab. DKK 240 per år.
 
