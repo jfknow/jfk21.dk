@@ -38,7 +38,7 @@ Alle lån fra IMF og World Bank bør være rentefrie, ellers er der ikke meget t
 
 Ret skal være ret, derfor skal whistleblowers beskyttes. De kæmper for vores alle sammens frihed. Det gælder alle, der er villige til at tale afsløre korruption, konspiration, overgreb og tvang, misbrug og svindel. Det gælder alle områder af samfundet, både det civile, statslige, kommercielle og militære. 
 
-# Mennesker Kundskab
+# Kundskab
 
 Forskning bør ikke dikteres af store korporationer og deres kommercielle interesser. Forskere bør ikke bruge halvdelen af deres arbejdstid på at tigge om fondsmidler fra bl.a. disse korporationer. Det skal heller ikke være muligt for disse via lobbyisme at forhindre forskning i visse emner. Viden om menneskelivet udspringer af naturen, og så længe mennesker ikke lever i harmoni med naturen, bekæmper den naturen. Vi ønsker at naturvidenskab og videnskab genfinder sin harmoni med naturen, så vi sikrer en bæredygtig fremtid for alle på jorden. Eksempelvis skal forskning og udvikling indenfor helt nye teknologier af ikke-forurenende energiproduktion kraftigt forøges.
 
