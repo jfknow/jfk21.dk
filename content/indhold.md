@@ -2,6 +2,8 @@ Title : Jorden Frihed Kundskab
 
 Title Note : Et nyt dansk parti
 
+E V E N T :     24. august kl 17 - 21    tickets + info:   https://billetto.dk/da/jordenfrihedkundskab
+
 [TITLE]
 
 # En bæredygtig økonomi
