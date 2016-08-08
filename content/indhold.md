@@ -17,7 +17,7 @@ En Folkeejet Nationalbank, der udsteder gældsfrie og rentefrie penge direkte in
 
 Den voldsomme stigning i pengemængden af bank–producerede penge med rente har forårsaget den store inflation i ejendomspriserne. "Seddelpressen" bør således ikke varetages af privatejede virksomheder, som har profit som motiv.
 
-Dette, kombineret med en større skatteomlægning og effektivisering af den offentlige sektor, sikrer hele befolkningen muligheden og retten til et liv i tryghed, et sted at bo og nok økonomi til at man kan klare sig i værdighed. Retten til at kunne opbygge sin karriere eller virksomhed uden unødvendigt bureaukrati og beskatning skal cementeres. Ved at fjerne selskabsskatten fuldstændigt og erstatte den med en omsætningsskat på digitale pengetransaktioner sikrer man, at alle virksomheder, store som små, bidrager ligeligt til samfundets opretholdelse. 
+Dette, kombineret med en større skatteomlægning og effektivisering af den offentlige sektor, sikrer hele befolkningen muligheden og retten til et liv i tryghed, et sted at bo og god nok økonomi til at man kan klare sig i værdighed. Retten til at kunne opbygge sin karriere eller virksomhed uden unødvendigt bureaukrati og beskatning skal cementeres. Ved at fjerne selskabsskatten fuldstændigt og erstatte den med en omsætningsskat på digitale pengetransaktioner sikrer man, at alle virksomheder, store som små, bidrager ligeligt til samfundets opretholdelse. 
 
 En væsentlig del af menneskets frihed er et mere overskueligt regelsæt og således søges administrationen nedbragt såvidt muligt. Besparelsen heraf skal specielt komme de lavestlønnede til gode.
 
