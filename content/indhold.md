@@ -4,9 +4,12 @@ Title Note : Et nyt dansk parti
 
 [TITLE]
 
-# BREAKING NEWS:  E V E N T :     24. august kl 17 - 21    tickets + info:   https://billetto.dk/da/jordenfrihedkundskab
+# En bæredygtig økonomi
 
-En bæredygtig økonomi
+
+BREAKING NEWS:  E V E N T :     24. august kl 17 - 21    tickets + info:   https://billetto.dk/da/jordenfrihedkundskab
+
+
 
 sikres FØRST og FREMMEST af: 
 
@@ -63,6 +66,9 @@ Det koster 240 kr. per år at blive medlem af Jorden Frihed Kundskab. [Udfyld ti
 En støtteerklæring angiver at du muligvis er interesseret i at støtte partiet. Efter godt en uge vil du modtage en mail fra `noreply@vælgererklæring.dk` og hvis du mener, at partiet bør kunne opstille til næste valg, så skal du følge anvisningerne i mailen, logge ind via NEMID og give os en vælgererklæring. 
 
 Det hele tager ca. 1 minut. 
+
+Personbeskyttelse: 
+Vi vil seriøst beskytte dig som person. De oplysninger du giver os i form af navn, adresse, e-mail, m.m., vil ikke blive solgt eller på anden måde videregivet til tredjepart. Du kan til enhver tid unsubscribe, hvis du tilmelder dig nyhedsbrev.
 
 ----
 
