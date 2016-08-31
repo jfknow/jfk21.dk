@@ -10,6 +10,6 @@ deploy:
   on:
     branch: master
   skip_cleanup: true
-  domain: jfk21.dk
+  domain: jfk21-dk.surge.sh
   project: site/
   
